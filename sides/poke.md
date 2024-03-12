@@ -12,3 +12,4 @@
 - green onion
 - grated ginger
 - lime
+- raw crab meat, defrosted
